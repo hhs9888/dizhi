@@ -1,11 +1,11 @@
 # 最新地址
-最新地址一：https://www.9hhs.com
+最新地址一：http://www.shehuipa.com
 
-最新地址二：https://dz.9hhs.net
+最新地址二：http://aa.shehuipa.net
 
-最新地址三：https://vv.9hhs.info
+最新地址三：http://bb.shehuipa.info
 
-备用地址四：https://pp.9hhs.in
+备用地址四：http://cc.shehuipa.in
 
 收藏下面地址发布页或发任意邮件到：dizhicom@gmail.com 自动回复最新地址
 
